@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @RENUKADEVI SENTHILNATHAN
 - 👀 I’m interested in logistics and business management
-- 🌱 I’m currently learning logistics managements
-- 💞️ I’m looking to collaborate on administrartive work
+- 🌱 I’m currently learning BUSINESS ADMINISTRATION
+- 💞️ I’m looking to collaborate on  LOGISTICS AND TRANSPORTATION OFFICE WORK
 - 📫 How to reach me ... MAIL ME AT renukasenthil2292@gmail.com
 
 
